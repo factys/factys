@@ -2,6 +2,9 @@
 
 <img width="300" alt="image" src="https://pbs.twimg.com/media/HS2vrcnXQAA7cuo?format=jpg&name=large" />
 
+enfp 927 w8 sp/sx
+
+
 > boioioinging © twt
 >
 >  ![](https://komarev.com/ghpvc/?username=iandshark&color=green&style=plastic&label=(*´□`)<)
@@ -12,4 +15,4 @@
 > wip
 
 
-enfp 927 w8 sp/sx
+
