@@ -7,4 +7,6 @@
 >  ![](https://komarev.com/ghpvc/?username=iandshark&color=green&style=plastic&label=(*´□`)<)
 >
 > 
-> wip so sorry
+> [rentry](https://rentry.co/skatepark)
+> 
+> wip
